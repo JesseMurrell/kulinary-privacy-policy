@@ -1,4 +1,4 @@
-# Kulinary Privacy Policy
+# Privacy Policy
 
 _Last updated: September 07, 2024_
 
